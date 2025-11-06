@@ -10,3 +10,4 @@
 ## Instructions
 
 - In two medium bowls separate the yolks from the whites for the eggs and whip the whites.
+- Add sugar and whip into the egg whites
